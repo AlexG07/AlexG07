@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Alex
+- ⚡︎ currently working at Technicolor.
+- 📭 alexismax0@gmail.com
